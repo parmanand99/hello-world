@@ -3,4 +3,4 @@ due to unfortunate conditions I can't able to participate in HACKIIITV (reason s
 so SORRY  
   SORRY 
 and SORRY 
-  for not sharng my HACKIIITV hackathon work !
+  for not sharIng my HACKIIITV hackathon work !
